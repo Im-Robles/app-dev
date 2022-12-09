@@ -17,7 +17,7 @@ Im Danilo S Robles Jr and this is my first repository. <br>  ill be talking here
 
 ---
 
-it sets back in a world after the war and also they dont have a devices to contact each other far away so the only thing to contact someone in far away is using a mail and some people there don't know how to write and use a typewriter so there's a CH Postal company where they are expert for sending a mail and also typing for them.
+it sets back in a world after the war and also they dont have a devices to contact each other far away so the only thing to contact someone is using a mail and most of the people there don't know how to write and use a typewriter so there's a CH Postal company where they are expert for sending a mail and also typing for them and violet evergarden is one of them.
 
 ---
 
