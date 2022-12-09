@@ -1,11 +1,12 @@
 # app-dev
+# INTRODUCTION
 
 Im Danilo S Robles Jr and this is my first repository. <br>  ill be talking here about my favorite anime series. <br> Thankyou for visiting my repository!
----
+
+
 
 # VIOLET EVERGARDEN
 
----
 *GIF LOADING ->*
 ![anime-violet-evergarden](https://user-images.githubusercontent.com/120182453/206701802-5f0b11f0-2215-4cbc-86cc-0bbfe213fa5a.gif)
 
