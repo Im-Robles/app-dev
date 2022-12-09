@@ -23,3 +23,4 @@ it sets back in a world after the war and also they dont have a devices to conta
 
 *GIF LOADING ->*
 ![tumblr_p45mouNOG01uqywa4o3_540](https://user-images.githubusercontent.com/120182453/206706705-b7b2b6eb-94a8-480f-9699-1f3036d9a1a4.gif)
+<br>*GIF LOADING ->* ![download](https://user-images.githubusercontent.com/120182453/206739250-171f9c7e-433e-4036-864b-4382c4bf3573.gif)
