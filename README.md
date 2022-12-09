@@ -9,7 +9,7 @@ Im Danilo S Robles Jr and this is my first repository. <br>  ill be talking here
 *GIF LOADING ->*
 ![anime-violet-evergarden](https://user-images.githubusercontent.com/120182453/206701802-5f0b11f0-2215-4cbc-86cc-0bbfe213fa5a.gif)
 
-- It has 13 episode for the series
+- It has 13 episode.
 - It's genre is anime and drama
 - You need a tissue before watching this anime
 - It also had a movie 
@@ -17,7 +17,7 @@ Im Danilo S Robles Jr and this is my first repository. <br>  ill be talking here
 
 ---
 
-it sets back in a world after the war and also they dont have a devices to contact each other far away so the only thing to contact someone is using a mail and most of the people there don't know how to write and use a typewriter so there's a CH Postal company where they are expert for sending a mail and also typing for them and violet evergarden is one of them.
+it sets back in a world after the war and also they dont have a devices to contact each other far away so the only thing to contact someone is using a mail and most of the people there don't know how to write and use a typewriter so there's a CH Postal company where they are expert for sending a mail and also typing for them, violet evergarden is one of them.
 
 ---
 
