@@ -6,6 +6,7 @@ Im Danilo S Robles Jr and this is my first repository. <br>  ill be talking here
 # VIOLET EVERGARDEN
 
 ---
+*GIF LOADING V*
 ![anime-violet-evergarden](https://user-images.githubusercontent.com/120182453/206701802-5f0b11f0-2215-4cbc-86cc-0bbfe213fa5a.gif)
 
 - It has 13 episode for the series
@@ -20,4 +21,5 @@ it sets back in a world after the war and also they dont have a devices to conta
 
 ---
 
+*GIF LOADING V*
 ![tumblr_p45mouNOG01uqywa4o3_540](https://user-images.githubusercontent.com/120182453/206706705-b7b2b6eb-94a8-480f-9699-1f3036d9a1a4.gif)
